@@ -1,3 +1,3 @@
-Nama : Yoga Aditya Nugraha 
-Kampus : Universitas Nasional 
+Nama : Yoga Aditya Nugraha  
+Asal Kampus : Universitas Nasional 
 
